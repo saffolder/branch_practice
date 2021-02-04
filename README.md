@@ -2,7 +2,7 @@
 
 These are a few of my favorite things:
 
-- Raindrops on roses
+- Dogs
 - Whiskers on kittens
 - Bright copper kettles
 - Warm woolen mittens
